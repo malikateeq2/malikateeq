@@ -1,2 +1,0 @@
-# malikateeq
-nohting
